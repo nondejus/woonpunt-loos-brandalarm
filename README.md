@@ -1,2 +1,9 @@
 # woonpunt-loos-brandalarm
+
 2020-2021 een paar keer week
+
+# elderly care
+https://en.wikipedia.org/wiki/Elderly_care
+
+# daalhif
+https://nl.wikipedia.org/wiki/Daalhof
